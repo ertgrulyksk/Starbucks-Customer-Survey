@@ -3,7 +3,7 @@
 
 <hr>
 
-![newplot (5)](https://user-images.githubusercontent.com/97463861/211082161-0c6ea3b1-359a-4352-be89-e29b6c20990b.png)
+![newplot (6)](https://user-images.githubusercontent.com/97463861/211083942-640909cf-b08e-47a3-95e9-7fbd11cb0b82.png)
 
 <hr>
 
